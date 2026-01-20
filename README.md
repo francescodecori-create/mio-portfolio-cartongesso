@@ -20,6 +20,10 @@ Per rendere il tuo ambiente unico.
 ### 3. Parquet e Pavimenti in SPC
 Per rendere il tuo ambiente caldo e accogliente.
 * [👉 [Guarda le foto](https://drive.google.com/drive/folders/1GipPXyrgevYMuHTytPBOIENbyXTGiI7j?usp=sharing)]
+
+### 4. Pareti D'arredo
+In questa sezione sono presenti i lavori di design e pareti attrezzate
+* [👉 [Guarda le foto](https://drive.google.com/drive/folders/1ooN42yUke18hrsIgp_1Mg3Ogo-a7ZoBS?usp=drive_link)]
 ---
 
 ## 📞 Contatti
