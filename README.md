@@ -3,7 +3,26 @@
 
 Benvenuti nel mio portfolio professionale. Qui potete visionare alcune delle mie realizzazioni recenti.
 # Presentazione e servizi offerti #
-* [👉 [Clicca qui](https://docs.google.com/document/d/1NJP_GZvwRMw0t1YxaEf1KEFZmYYhpwcG/edit?usp=sharing&ouid=106547178630138184012&rtpof=true&sd=true)]
+Da oltre 30 anni DECORI & DECORI TINTEGGIATURE di Mazzara Francesco con sede a Enna, si distingue per professionalità e competenza nella realizzazione di tinteggiature di interni, lavorazioni in cartongesso, posa pavimenti in legno (parquet) prefiniti, laminati, SPC.
+Dal privato al commerciale ed industriale si caratterizza per la cura, la qualità dei lavori eseguiti e per l'attenzione nelle finiture.
+L'utilizzo di materiali di qualità è una priorità dell'azienda sempre volta alla ricerca della soddisfazione totale del cliente a cui offre sempre la massima disponibilità, cortesia ed attenzione.
+
+ Il nostro principale obiettivo è riuscire ad ottenere un ambiente adatto ai gusti del cliente nel quale si sentirà comodo, sereno e soddisfatto;
+
+
+
+ ## Servizi Offerti:
+           
+- Tinteggiatura con Idropittura
+- Tinteggiatura ad Airless
+- Effetti Decorativi e Materici
+- Posa In Opera Carta Da Parati - Poster - Stampe Personalizzate
+- Lavorazione In Cartongesso
+- Controsoffitti - Contropareti
+- Pareti Attrezzate
+- Coibentazione Termica ed Acustica
+- Controsoffitti In Fibra Minerale
+- Posa In Opera Parquet Prefinito Massello e Multistrato - Laminati - SPC - Sopraelevati
 
 ---
 
